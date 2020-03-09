@@ -9,7 +9,9 @@
 - 2 tablespoons Worcestershire sauce
 - 1/8 teaspoon cayenne pepper
 - 2 cloves garlic, minced 
-- tomato and salad
+- 2 slices of cheeze
+- 1 tomato
+- salad
 
 ## Preparation
 
